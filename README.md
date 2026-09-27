@@ -9,6 +9,7 @@ if you see me anywhere, dont mind to c+h !!!
 <img width="220" height="220" alt="bleh-cat-blehh" src="https://github.com/user-attachments/assets/b1c5df35-32f6-4a7d-878a-d692b07aa1ab" />
 WELL. im also a small artist.... if youre my friend, i sometimes will draw you small things !
 my bdayy is 04/06, if you want.. you can add my discord ! @moimoyy
+
 <img width="370" height="294" alt="1289fd299db50a613d213d27969eeabf" src="https://github.com/user-attachments/assets/4f098ece-60e9-4db7-be19-cd6b80027032" />
 
 
