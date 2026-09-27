@@ -10,4 +10,6 @@ if you see me anywhere, dont mind to c+h !!!
 WELL. im also a small artist.... if youre my friend, i sometimes will draw you small things !
 my bdayy is 04/06, if you want.. you can add my discord ! @moimoyy
 <img width="370" height="294" alt="1289fd299db50a613d213d27969eeabf" src="https://github.com/user-attachments/assets/4f098ece-60e9-4db7-be19-cd6b80027032" />
+
+
 anyways....... thank you so much for spending time reading.!!!!
